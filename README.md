@@ -33,7 +33,7 @@ src/
 
 ## 📸 Gravação 
 
-8dca3754-9985-4701-a9d4-93af572b0c64
+https://drive.google.com/file/d/1GewEkAgpoqAAkA8INX0Lv0bKihHnD-1Z/view?usp=sharing
 
 ## 📚 Aprendizados da videoaula
 
